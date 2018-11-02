@@ -1,0 +1,2 @@
+# lejournaldesinvites.com
+Journal indépendant
